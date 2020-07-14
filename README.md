@@ -7,4 +7,4 @@ Have any rare flash games?
 
 send them to me at tsukisuperior@gmail.com
 
-https://discord.gg/zvfnYWp
+Discord Server: https://discord.gg/zvfnYWp
