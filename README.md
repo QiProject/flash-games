@@ -9,7 +9,6 @@ https://discord.gg/8gERp84
 
 Please understand i do not own the rights to any of these games
 
-
 NAMING STYLE:
 
 Capital letters on each word, dash to separate them
