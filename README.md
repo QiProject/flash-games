@@ -1,7 +1,7 @@
 # flash-games
 I want to thank everyone who is helping us at this point
 
-Related project https://github.com/RealLifeChihiro/spontaneousegg.com
+Partner Project https://github.com/RealLifeChihiro/spontaneousegg.com
 
 If you want to contribute, find the team here:
 
